@@ -1,0 +1,99 @@
+# Meditation Journal
+
+**r/genuinemeditation** · by **He_of_the_Hairy_Arms** · *(OCR)* · `Journal` · 3 points · 2 years ago
+
+This is going to be a revival of my meditation journal, which I started here several months ago and regrettably abandoned shortly after. Now I'm in a much better place to be keeping such a journal, so here goes.
+
+Today (10/28), I continued doing what I've been doing for the past week or so: before sitting to meditate, I told myself what I was going to do. To keep things simple, because I tend to over-think things, my goal is to pay attention to the sensation of air just under my nostrils, trying to keep my attention as steady and consistent as possible. When I get distracted, I bring it back. After giving myself these instructions I meditated for an hour before work. I noticed that I was very sleepy, almost dreaming, by the time I finished my hour, so I meditated again at night (just finished), this time on a zafu instead of a soft chair. This kept me more alert for longer, but I noticed myself falling into lethargy again.
+
+Now, I'm wondering if I should just keep doing the same exact thing, regardless of the results, or if I should do something else with my mind. I've heard stories of practitioners having breakthroughs simply from applying a method consistently. On the other hand, it's possible to meditate incorrectly. My main concern is that I keep my instructions simple. Simple instructions are more difficult to over-think.
+
+(I did wonder, in the middle of meditating, if I was still unconsciously controlling or holding back my breath in an effort to let go. Whenever I experience a weak nimitta, I notice my shallow breaths and struggle not to breathe more deeply.)
+
+10/29: Followd Paramananda's instructions to generate positive feelings by enjoying the breath as a loved one, and noticed some improvements. Doing this resulted in less obsession with the minute details of sensation and seemed to bring my attention down from inside my own head to lower, around the nostrils. There was also less forcing or resisting the natural flow of the breath. Part of my difficulty has been that I tend to think about a moment ago, rather than right now; I try to locate and experience the sensation that just happened instead of the one happening now. Using the gatekeeper analogy, I turn my head and watch the guest for too long after he walks through the gate. However, I think this method helps me to avoid doing that.
+
+Using the "loved one" method, I also felt more refreshed and clear afterwards, but I still felt some minor disappointment that I didn't do a "better job" meditating. In general this is a source of neurosis for me. I never know whether to stay the course or try something different. Staying the course could mean doing the wrong thing for too long, but always reaching for some new method that produces results more quickly causes an inconsistent, scattered practice--or at least this is my concern. For now, though, I think I've made a good adjustment.
+
+10/30: Just finished meditating for one hour. I tried to use the method of viewing the breath as a loved one, but found it difficult to generate the feelings of love. I also found that my breath and body were restless today. At certain points I felt the tension in my face, eyes, and throat relax, and my breath become more shallow and slow, which was encouraging, but I never felt myself sinking into long stretches of continued attention. On the other hand, I never came close to falling asleep. All in all, a mediocre day. I meditated knowing that I had something to do immediately after, so perhaps that was a distraction in the back of my mind.
+
+10/31: This was my first session focusing exclusively on noticing the lengths of my breaths. I followed Paramananda's prior instructions to note the lengths experientially, rather than conceptually--that is, to follow the breaths from beginning to end, never dropping my attention prematurely or dwelling on a breath for too long. As expected, my attention wavered at times, and it was sometimes difficult not to conceptualize the lengths of the breaths. I sometimes wonder if "lengths of the breaths" is a bit misleading, given that it's so easily misunderstood. In any event, my field of vision with my eyes closed became a bit lighter at certain times, accompanied by some pleasant sensations in my nose and head, which I think, if amplified, would have been a nimitta and then jhana. Encouraged by what I experienced. It was more like when I first started meditation and reached jhanas without knowing how or why.
+
+11/1: Meditated sitting upright on a zafu for 45 minutes. Once again I focused exclusively on the lengths of my breaths, following each one from beginning to end without a break in my attention. I found that I was still sometimes thinking conceptually of the lengths of my breaths, meaning I was thinking of the past and projected future. At other times I was simply watching the breath for what it would do next. Instead of knowing, "this one is short" or "this one is long," I watched as my thirst for air increased and decreased. Sort of like my attention riding the wave of my breath. Some moments were quite pleasant. But I still wasn't sure if I was truly observing the lengths of the breaths as the suttas describe it. I was meditating more like how I meditated when I reached jhana, but if I was doing it right--or more right--then I think maybe the "lengths of breaths" instruction is just a general guideline to observe the fluctuations of the breath...and to pay continuous attention. Maybe I was holding onto the instruction too literally?
+
+I began to lose access to jhana when I decided to take meditation seriously and do it the "right" way, meaning the way prescribed by experts in my chosen tradition. Maybe this is because I relied too heavily on their words by themselves, without using enough of my own meditation experience to guide me in interpreting those words? Perhaps it all comes down to a habit of excessive self-doubt.
+
+11/4: Tonight I continued my efforts to simply notice the lengths of the breaths, with the intent of ascending up the frames of reference. As I described in previous posts, I at first vacillated between noticing the lengths logically, meaning thinking, "How long is the breath I'm currently taking?" and simply observing the breath's fluctuations. At a certain point, I decided to interpret "observing the lengths of the breaths"” as simply "continuously studying the breath,” (i.e., noting its fluctuations), and then I noticed all effort drop away. The analogy of surfing is a very good one. My attention followed my breath through all its fluctuations, but with an awareness that it was following, and that the breath was presenting changes to observe and adjust to, like a surfer adjusting on a wave. My attention sometimes faltered, of course, but not as frequently as it has been recently. I think maybe I have greatly loosened my "grip" on the breath. This makes sense, because I previously tried to focus so closely on the sensation of air under my nostrils that all other stimuli disappeared and the sensation was stable and constant, rather than fluctuating (which requires a backdrop.)
+
+In summary for today, I think I've taken a step towards adjusting my grip on the breath appropriately and become a bit better at the first step of the first frame of reference. I'll continue to practice, of course.
+
+11/6: Continuing my approach of watching the breath from a slightly greater distance (or, as it were, with a looser grip), I've arrived at nice moments of relaxation and pleasantness in my past couple of meditations. However, I seem to be having a bit more trouble getting to that state where all effort drops away and the breath is short and very clearly observed. It might simply be that I'm falling back into controlling the breath instead of observing it. I've also mostly abandoned literally trying to discern the "lengths" of the breaths, in favor of watching (or following) what each breath does, for its entire duration. What might be happening is that I remember the state I want to be in and try to force the breath to get there, causing my breaths to be more forced, my facial muscles tensed, and so on.
+
+11/7: Just meditated on my zafu for 47 minutes (my aim was an hour) before my leg got too painfully numb to continue. I achieved a few moments of clear, pleasant concentration, but they were short-lived and I still felt myself struggling against something, perhaps an instinct to check how I'm doing. At a certain point I wasn't far away from bliss...I could tell I was getting there. I think the awareness that I'm "getting close" tends to distract me and ruin my progress towards jhana.
+
+Today I read in my book, "A Collection of Discourses from thr Pali Canon,"” that one way in which students progress in their cultivation is by having their minds "seized with agitation for the Dhamma," which prohibits them from focusing in meditation until very conducive conditions are met and they can finally subdue their minds. I wonder if I fall into this category, or if the agitation that I feel is just the normal struggle against preoccupation with attainments.
+
+11/8: Just finished another session, and realizing I keep vacillating between noticing the "lengths of the breaths,” and observing the breaths in a general way. I'm still a bit indecisive as to the correct interpretation of the instruction, "notice the lengths of the breaths.” At first I would think to myself, non-verbally but instinctively, "This is a short breath,” or "this is a long breath," but soon I would begin to simply try and follow each breath from beginning to end, assuming that if I did this, I was "discerning” the lengths of the breaths as a result. I'm still not sure which approach is best. And if it's the second one, I'm still questioning why the instruction is to "discern the lengths of the breaths."” Was this just the Buddha's efficient way of telling student's to follow each breath from beginning to end, consistently? You need to do that to discern the length of the breath, anyway, and taking any single moment to ask oneself, "Is this breath long or short?" is actually getting in the way of discerning the actual length of the breath...because while you ask the question, you miss out on part of the breath.
+
+I didn't get as close to jhana today as I did yesterday, but my breaths did become very faint at a certain point, and I experienced a minute or two where the blackness of my closed eyes seemed vast, and my breaths, while faint, felt very distinct and long. I'm still having difficulty not fighting myself once my breaths get faint, though. I always say to myself, "Okay, now is when you really must not fight yourself!" and of course in saying that, I'm already fighting myself.
+
+11/9: I meditated twice today. The first time, as an experiment, I dedicated myself to noting the "lengths" of my breaths in a non-verbal way, as each breath was happening. This was to determine how literally to take the instruction. I found myself falling into sloth and torpor and having dream images towards the end of the session.
+
+The second time, I decided to simply follow my natural breaths as effortlessly as possible. This resulted in a fairly easy, clear experience. My mind was much steadier on my breath, although I did notice it wavering around a little bit. No bliss or rapture arose as a result of my attention, but I was fighting with myself much less. I tried to focus, for a moment, on how nice it was to be with the breath, to try to generate some joy or bliss, but then stopped, as I am still in the "long/short” stage of the four frames of reference and didn't want to get ahead of myself. Also, I'm not sure if conscious effort to generate joy is contradictory in some way; doesn't the joy arise from withdrawal (including from “trying" to feel joy)?
+
+11/10: After the longest time of interpreting and re-interpreting the meaning of the phrase "notice the lengths of the breaths," I dug through some old reddit correspondence with Paramananda and decided that this was yet another example of my clinging to analysis and representations, instead of direct experience. I did this also with questions about whether to locate the breath, and if so, how. It seems that the moment I asked myself how to meditate "the right way," I began to try to follow various written instructions to the letter, and all of the instructions led me on a path of analysis and frustration. I didn't realize that they were just limited models of what I had already briefly experienced.
+
+So today I decided to eschew all of my worries about whether I was noticing the lengths of the breaths or locating the sensation correctly. I followed the breath for as long as I could before being distracted, and then did it again. I noticed my mind felt much more settled, less restless, and more full of faith that this would help me in the end. I noticed the beginning of bliss and joy arising, but it didn't develop into jhana. It was more a feeling of gladness and vitality. At a certain point I think I lost my concentration, and towards the end it was difficult to regain because of leg pain. But I think I'm done obsessing over worded instructions and beginning to better understand what I need to do.
+
+11/13/15: I found my attention to be very diffuse today. I was less preoccupied by whether or not I had the right understanding of concentration, but I noticed my mind wandering frequently and I mostly failed to achieve sustained attention. I also noticed that I had a lot of difficulty letting go of controlling the breath. There were a few, very short, moments when my meditation session felt extremely good and refreshing, but whenever this happened I became hungry for oxygen and tried to fight against my urge to breathe more quickly. So I never fell into total relaxation; I was usually either controlling my breath, or trying NOT to control my breath. I'll have to simply continue meditating and try to investigate this problem further.
+
+---
+
+## 6 comments
+
+- **refugeinbuddha** · *परमानन्द Paramananda* · 1 point · 2 years ago
+
+  > I noticed that I was very sleepy, almost dreaming, by the time I finished my hour, so I meditated again at night just finished), this time on a zafu instead of a soft chair. This kept me more alert for longer, but I noticed myself falling into lethargy again.
+
+  Learn to work with how the mind works. If the mind finds something pleasant, it is more likely to stay in attention with it. Therefore, develop sensitivity to bliss and joy, and enjoy the breath as if you would pay attention to a loved
+
+  one.
+
+- **refugeinbuddha** · *परमानन्द Paramananda* · 1 point · 2 years ago
+
+  > Using the "loved one" method, I also felt more refreshed and clear afterwards, but I still felt some minor disappointment that I didn't do a "better job" meditating. In general this is a source of neurosis for me. I never know whether to stay the course or try something different. Staying the course could mean doing the wrong thing for too long, but always reaching for some new method that produces results more quickly causes an inconsistent, scattered practice--or at least this is my concern. For now, though, I think I've made a good adjustment.
+
+  As long as one continues to practice and refine it, there is no wasted practice. By keeping a record such as this journal, one looks back on what has been done, prevents repeating unskilful actions and refines skilful actions. This is the basis of the Buddha's training - to perform unskilfulness, realize that they are unskilful, investigate its cause, then turn it into skilfulness.
+
+  One should only try something different when you have mastered the skill, and realized that it does not lead to enlightenment. Using the example of the Buddha, the Buddha mastered the highest samadhis of his time, from two masters. However, it was only after mastery that he realized that they did not lead to the answers he wanted. Then, by refining his practice, he found the right path. It is not as bad now, since the Buddha has already laid down his own experience for us to follow.
+
+    - **He_of_the_Hairy_Arms** · 1 point · 2 years ago
+
+      Thank you for this advice. When I say, "try something different,” I guess I mean a different approach to breath meditation. For example, I was trying to notice only the sensation of my breath under my nostrils. Now I'm following your suggestion of generating feelings of love by treating the breath as a loved one. This is the "different” thing I'm trying, even though it's an attempt to master the same technique. What happens with me is that I end up with so many instructions that I think too much. My mind goes, "focus on the sensation, but also treat the breath as a loved one, and also hold your attention on the breath from beginning to end, and also note the gaps between breaths, and also note the lengths of the breaths, and also notice now instead of a moment ago..." So my mind does a lot of “checking" to see if I'm following all of these instructions at once, and I bounce back and forth from emphasizing one or a few of these things to others. So in this way I'm always trying new thing after new thing, and not approaching breath meditation the same way for a long stretch of time.
+
+        - **refugeinbuddha** · *परमानन्द Paramananda* · 1 point · 2 years ago
+
+          You are not completely wrong in that sense. Take for example, a task at hand that you love to do.
+
+          Simply sitting there and enjoying it, your mind becomes pliant, flexible, open-minded and observant. As the mind becomes more absorbed in attention in the task at hand, more details come to mind - It is a very natural thing that arises when attention arises.
+
+          As the stillness increases, any contrasts will start to be more noticeable. Also, as awareness heightens, more that were previously imperceptible open up its doors to you, increasing your sensitivity.
+
+          From this thread:
+
+          The Physical Body Inhaling, exhaling, discerning that the breath is long/short. Inhaling, exhaling, sensitive to the physical body. Inhaling, exhaling, calming the physical body.
+
+          Sensations/Feelings Inhaling, exhaling, sensitive to bliss and joy. Inhaling, exhaling, sensitive to mental agitation/feelings. Inhaling, exhaling, calming the mental agitation.
+
+          What I am proposing here is to move up the training ladder. Once you have discerned that the breath is long or short, trained well in it, then move on to the next, being sensitive to the physical body and calming the physical body.
+
+          Once down, move towards sensitivity of bliss and joy. That is where the loving attention comes in. By doing that, you increase your sensitivity to the bliss and joy that arises. So on and on.
+
+            - **He_of_the_Hairy_Arms** · 1 point · 2 years ago
+
+              Thank you again. I think now I'm starting to see how this all fits together. From now on I'll try to systematically master each aspect of breath meditation. It seems like this is the answer to my problem of trying to do many things at once. So I'll make each step second-nature and then progress to the next. For the next week or so (at the very least), I'll discern that the breath is long or short. I may have questions about the future steps when the time comes, but for now, I won't get too ahead of myself.
+
+- **refugeinbuddha** · *परमानन्द Paramananda* · 1 point · 2 years ago
+
+  > Encouraged by what I experienced. It was more like when I first started meditation and reached jhanas without knowing how or why.
+
+  Remember the conditions that brought you there, note them in the journal, and replicate it skilfully. Then you will consistently go into the jhanas. Start every practice with a beginner's mind.
